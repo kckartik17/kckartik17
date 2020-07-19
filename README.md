@@ -1,1 +1,1 @@
-# Hi, I'm Kartik Chauhan
+# Hi, I'm Kartik Chauhan 👋
